@@ -8,7 +8,7 @@
  Since i started my retraining i really enjoy coding and looking into diffrent programming languages.
  But my journey just begun and im looking forward to many projects where i can bring in my ideas!
  
-- 📫 How to reach me ... You can reach out to me here over my email, otherwise im on LinkedIn (https://www.linkedin.com/in/michael-kelle-b3237a256/) u should be albe to reach me there!
+- 📫 How to reach me ... You can reach out to me on LinkedIn (https://www.linkedin.com/in/michael-kelle-b3237a256/) u should be albe to reach me there!
 
 
 <!---
